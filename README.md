@@ -1,1 +1,1 @@
-Igor Kowalski 
+Igor Kowalski [MODYFIKACJA OPISU HERE]
